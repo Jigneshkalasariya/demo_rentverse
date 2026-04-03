@@ -1,3 +1,11 @@
+Hello Becky,
+Hope you are doing well 
+I am Jignesh K. we had connected on freelancer yeseterday 
+I have seed your Freelancer accoutn has been deleted
+So Can you please connect me on my email or contact me my mobile/Whatsapp 
+Email: er.jigneshkalasariya@gmail.com
+Mobile: +91 9409136846 
+Thank you 
 <!-- ⚠️ Best viewed in VS Code Markdown Preview -->
 <!-- In GitHub this file may look unformatted or misaligned -->
 
